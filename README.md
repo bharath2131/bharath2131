@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bharath2131
-- 👀 I’m interested in coding,backend processing,front end development 
+- 👀 I’m interested in everything around me! 
 - 🌱 I’m currently learning which i like the most
 
 - 📫 How to reach me ...bharathganni8095@gmail.com
